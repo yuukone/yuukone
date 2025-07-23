@@ -45,5 +45,5 @@ I'm 16, Polish/Ukrainian. I speak $\color{#F9D7C1}{Eng/Pol/Ua/Ru}$
 
 ➤ _I have my own Telegram channel, where I post my little project "Theophobia Poem", check it out!:_ $\color{#BB1EEA}{t.me/theophobiapoem}$
 
-<p align="center"> It's all for now, see you soon, peers! </p>
+<p align="center"> It's all for now. I took inspo from Ray :D
 <p align="center"> <img src="https://i.pinimg.com/1200x/31/59/6f/31596f4a95fa4b618765af6a484c7e97.jpg"> </p>
