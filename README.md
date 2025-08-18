@@ -13,6 +13,7 @@ I'm 16, Polish/Ukrainian. I speak $\color{#F9D7C1}{Eng/Pol/Ua/Ru}$
  Project Sekai _˚ʚ♡ɞ˚_
  Bllk [not updated] _˚ʚ♡ɞ˚_
  Kpop Demon Hunters _˚ʚ♡ɞ˚_
+ Ensemble Stars _˚ʚ♡ɞ˚_
 
  °❀⋆.ೃ࿔*; My Kins:
  
@@ -20,13 +21,15 @@ I'm 16, Polish/Ukrainian. I speak $\color{#F9D7C1}{Eng/Pol/Ua/Ru}$
  <p align="left"> <img src="https://files.catbox.moe/01dven.jpg"> </p>
  
  
- -_˚ʚ♡ɞ˚_ Kariya Masaki/Aitor Cazador $\color{#ADD8E6}{[Inazuma Eleven Go]}$
- <p align="left"> <img src="https://files.catbox.moe/oiditp.jpg"> </p>
+ -_˚ʚ♡ɞ˚_ Eichi Tenshouin $\color{#FFFF00}{[Ensemble Stars]}$
+ <p align="left"> <img src="https://files.catbox.moe/camjlp.png"> </p>
+
+ -_˚ʚ♡ɞ˚_ Ritsu Sakuma $\color{#FFFF00}{[Ensemble Stars]}$
+ <p align="left"> <img src="https://files.catbox.moe/2xjjeu.png"> </p>
 
  
- -_˚ʚ♡ɞ˚_ Yoisaki Kanade $\color{#F9D7C1}{[Project Sekai]}$
+ -_˚ʚ♡ɞ˚_ Yoisaki Kanade $\color{#800080}{[Project Sekai]}$
  <p align="left"> <img src="https://files.catbox.moe/sb89f5.jpg"> </p> 
-
  
  -_˚ʚ♡ɞ˚_ Sakurai Haruka $\color{#FF0000}{[MILGRAM]}$
  <p align="left"> <img src="https://files.catbox.moe/na5cw8.png"> </p>
