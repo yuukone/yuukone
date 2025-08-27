@@ -12,8 +12,9 @@ I'm 16, Polish/Ukrainian. I speak $\color{#F9D7C1}{Eng/Pol/Ua/Ru}$
 -_˚ʚ♡ɞ˚_ Inazuma Eleven [All series] _˚ʚ♡ɞ˚_ 
  Project Sekai _˚ʚ♡ɞ˚_
  Bllk [not updated] _˚ʚ♡ɞ˚_
- Kpop Demon Hunters _˚ʚ♡ɞ˚_
  Ensemble Stars _˚ʚ♡ɞ˚_
+ MILGRAM _˚ʚ♡ɞ˚_
+ Alnst _˚ʚ♡ɞ˚_
 
  °❀⋆.ೃ࿔*; My Kins:
  
@@ -40,7 +41,7 @@ I'm 16, Polish/Ukrainian. I speak $\color{#F9D7C1}{Eng/Pol/Ua/Ru}$
 
  °❀⋆.ೃ࿔*;  BEFORE YOU INTERRACT!
 
-➤ _I'm gifted with reallyyyy poor health. I might disappear for periods of time, if i dont reply - probably i'm sleeping!_
+➤ _I'm gifted with quite poor health. I might disappear for periods of time, if i dont reply - probably i'm sleeping!_
 
 ➤ _Outside of pt i mostly use Telegram to communicate. In pt, i prefer whispers!_
 
